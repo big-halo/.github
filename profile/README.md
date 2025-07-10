@@ -1,1 +1,1 @@
-Hi. Welcome to Halo! 😇
+We are building superintelligence powered by AI wearables.
