@@ -1,4 +1,4 @@
-We are building superintelligence powered by AI wearables.Halo is building the future of wearable intelligence — technology that feels like a superpower. 
+Halo is building the future of wearable intelligence — technology that feels like a superpower. 
 
 We’ve reached 80M+ views across viral launches, been featured on the New York Times, TechCrunch, NBC, and Forbes, and are moving fast. 
 
